@@ -1,3 +1,3 @@
 Google community is very good community.
-Google work is realy amazing.
+Google work is a realy amazing.
 I love to work in google.
